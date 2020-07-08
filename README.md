@@ -1,4 +1,3 @@
 # MJV_vagas
-Repositório de vagas (testando)
-Como uso isso aqui?
-Help, Luciano
+Repositório de vagas
+VEM PRO TIME! 🚀💜
